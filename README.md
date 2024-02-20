@@ -1,4 +1,4 @@
-## Oi! Eu sou o <s>goku</s> Victor 🖐️
+## Oi! Eu sou o Victor 🖐️
 
 ## Tecnologias que eu uso no meu dia
 
